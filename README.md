@@ -1,0 +1,2 @@
+# PROFESSIONAL-SKILLS
+mid exams
